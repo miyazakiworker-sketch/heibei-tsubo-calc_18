@@ -1,1 +1,0 @@
-# heibei-tsubo-calc_18
